@@ -1,1 +1,2 @@
-Replace this with a link to your a GitHub or social media profile.
+[Faceebook](https://www.facebook.com/sameerzemi143)
+[instagram](https://www.instagram.com/masquerade_10)
